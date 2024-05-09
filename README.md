@@ -43,4 +43,4 @@ This game's just getting started. Think more questions, better hardware, and a g
 - **Madhur**: The code ninja and the motion sensor maestro.
 
 ## Total Hours Spent: 39.5 hours (and worth every second!)
-Stay in touch! Follow us on [LinkedIn](https://www.linkedin.com/in/tasbi03) for more electrifying projects!
+Stay in touch! Follow us www.linkedin.com/in/madhur-saluja-4646a0207 on for more electrifying projects!
